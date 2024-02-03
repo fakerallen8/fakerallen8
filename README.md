@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fakerallen8
+-I like bitcoin and airdrops. 
